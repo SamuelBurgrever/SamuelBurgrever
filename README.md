@@ -1,4 +1,4 @@
-### Hey guys! I am Samuel Burgrever Torres 👋😖
+### Hey guys! I am Samuel Burgrever Torres 👋
 
 
 
